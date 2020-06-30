@@ -1,0 +1,1 @@
+a lil one pager for randomly generating chord symbols for when i'm pwacticing pianii
